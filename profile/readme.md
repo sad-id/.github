@@ -1,4 +1,4 @@
-# IT Software Solutions for Business - Indonesia
+# Software Applications Development - Indonesia
 
 ## World Skills Asia 2023 (Abu Dhabi)
 🥈 Gavriel Satrio Widjaya
